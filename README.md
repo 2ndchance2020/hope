@@ -1,1 +1,2 @@
 # hope
+hari yang cerah
